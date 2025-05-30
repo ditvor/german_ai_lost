@@ -1,1 +1,0 @@
-# german_ai_lost
